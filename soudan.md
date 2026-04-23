@@ -45,7 +45,7 @@
     - [Subic Bay Hawker](https://maps.app.goo.gl/Bqsf3hC2fVC6nxam6)
 
 - **⑤ 不動産の契約書など重要書類の保管について**
-  - 移住する場合、不動産の契約書を持っていっても安全に保管可能でしょうか？
+  - The Subic Bay Hostel & Dormitoryでは、不動産の契約書等を安全に保管可能でしょうか？
 
 ---
 
